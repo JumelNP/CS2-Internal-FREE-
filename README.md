@@ -3,10 +3,6 @@
 
 https://discord.gg/NWRs8GXsG9
 https://discord.gg/NWRs8GXsG9
-https://discord.gg/NWRs8GXsG9
-https://discord.gg/NWRs8GXsG9
-https://discord.gg/NWRs8GXsG9
-https://discord.gg/NWRs8GXsG9
-https://discord.gg/NWRs8GXsG9
-https://discord.gg/NWRs8GXsG9
-https://discord.gg/NWRs8GXsG9
+
+
+FOR EDUCATIONAL PURPOSES ONLY! 
